@@ -4,4 +4,4 @@
 - 📫 How to reach me: On my Personal Portfolio
 - ⚡ Fun fact: Nothing funniest about me :) (i'm serious guy)
 
-©2024 - Kauan Ferreira
+©2024 - Kauan Ferreira - All Rights Reserved.
