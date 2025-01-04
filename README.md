@@ -4,4 +4,4 @@
 - 📫 How to reach me: On my personal portfolio.
 - ⚡ Curious fact: I still draw with poor lineart(I need to free myself so fast i can).
 
-©2024 - Kauan Ferreira - All Rights Reserved.
+©2024-2025 - Kauan Ferreira - All Rights Reserved.
